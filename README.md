@@ -4,3 +4,5 @@ Made by:
 - Ardita Hardi
 - Filanda Al Rozaq
 - Iqbal Afif
+
+For more details, please see https://youtu.be/0NKF4HapnJU .
